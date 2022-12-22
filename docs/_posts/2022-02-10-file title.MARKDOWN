@@ -1,5 +1,0 @@
----
-layout: post
-title:  "test title"
----
-Good morniiiiiing over that side over there chicken charling. Hope you got some good sleep and weren't up too early! Proud of you for handling everything you're doing sweet, don't know how you manage it. Almost at the end of the week now, then you're only in a bit next week and I'm looking forward to spending more time with you next week! You're my mega numero Uno ungunga, I love you so much. Drive safe my darling and have a good morning with the wee bawbags. Looove you xxxxxx
